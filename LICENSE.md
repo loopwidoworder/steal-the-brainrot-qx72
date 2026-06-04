@@ -1,4 +1,4 @@
-#  
+#  grow a garden vip Script is the best grow a garden Script, featuring undetectable and infinite resources. Safe and powerful for all your needs.
 
 
 
